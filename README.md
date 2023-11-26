@@ -1,2 +1,2 @@
 # Understanding-The-Human-Cognition
-All about the mind, psychology effects and behaviours
+Some knowledge about the mind, psychological effects, and behaviors
